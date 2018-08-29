@@ -1,3 +1,0 @@
-hey daddy
-congratulations
-rockstar
