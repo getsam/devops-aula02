@@ -1,2 +1,4 @@
 # devops-aula02
-AC
+Will Smith
+Keanu reeves
+Bradley Cooper
